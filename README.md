@@ -1,2 +1,2 @@
-Devine Leaks
-https://discord.gg/H3UFRpy
+My Discord:
+https://discord.gg/9Mac9tUYhw
